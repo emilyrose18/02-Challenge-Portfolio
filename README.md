@@ -1,0 +1,1 @@
+My portfolio created by scratch with my work samples that showcase my skills and talents to employers looking to fill a part-time or full-time position.
